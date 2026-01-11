@@ -1,0 +1,7 @@
+guys readme in file on russian language there will be instructions in english here
+Hello, DHack cheat user, you'll find all the instructions here.
+1. Drag the DHack folder from the zip file to your desktop.
+2. Open the DHack folder on your desktop.
+3. Run the DHack start file in the folder.
+
+Key for the k48kfsdfmkjsf2mkfds cheat.
